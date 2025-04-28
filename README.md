@@ -1,1 +1,1 @@
-thích tự do!
+I work in Automation Industrial.
